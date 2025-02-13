@@ -13,7 +13,8 @@ CapCut Pro version 14.0.0 APK is a powerful video editing application for Androi
 ### 1. Comparison of Requirements and Details
 CapCut requires an Android device with at least 4GB of RAM and Android 7.0 or higher. This version offers unlocked features that are typically reserved for premium users. It’s perfect for users who want a professional-grade video editor without any subscription.
 
-![image](https://github.com/user-attachments/assets/7fd67791-a68e-4551-a8da-836f8386b894)
+![image](https://github.com/user-attachments/assets/c6c80dd4-5b28-4568-8eec-dd3c5036b84b)
+![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
 ## 📍Link Donwload : https://tinyurl.com/4c8vhba4 📲
 
 ### Key Features of CapCut Pro version 14.0.0 APK
